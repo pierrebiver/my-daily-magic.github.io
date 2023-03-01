@@ -1,0 +1,1 @@
+# my-daily-magic.github.io
